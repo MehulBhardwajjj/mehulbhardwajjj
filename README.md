@@ -47,9 +47,9 @@
 
 ### 🌐 Connect With Me
 
-- LinkedIn
-- Portfolio
-- Email
+- LinkedIn (www.linkedin.com/in/mehul-bhardwajjj)
+- Portfolio (https://mehulbhardwajjj.github.io/Portfolio/)
+- Email (mehulbhardwajofficialwork@gmail.com)/(S24CSEU1744@bennett.edu.in)
 
 ---
 
